@@ -10,6 +10,6 @@ Work experience: Front-office manager in Hotel, Manager in tourism company(last 
 
 Skills and experience in IT: newbie in this field 
 
-Education: Jambyl innovation high college(management), University of international business(restaurant and hotel business(4th year student(bachelor)), Marketing course: The Flow 2.0/3.1
+Education: Jambyl innovation high college(management), University of international business(restaurant and hotel business(4th year student(bachelor)), Marketing course: The Flow 2.0
 
 English: intermediate
